@@ -1,5 +1,1 @@
-durckii ruusskiy
-
-
-american super man
-'gg
+hello world!grisha
